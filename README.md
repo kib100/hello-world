@@ -1,4 +1,4 @@
 # hello-world
 Practice
 
-Kib100 present.
+Kib100 - not sure what to say...
